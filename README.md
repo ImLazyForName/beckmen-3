@@ -1,6 +1,6 @@
 A google translated version of Pikmin 3
 
-Convention is at stake! Convention sent a team of three captains to help them! White, Walflap and Britain!
+Convention is at stake! Convention sent a team of three tourist who does not know to help them! White, Walflap and Britain!
 Can they save the decade from death?
 
 ----------------------------------------
